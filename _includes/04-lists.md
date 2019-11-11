@@ -1,1 +1,10 @@
-Replace this with a list of your favorite things.
+* Momonga
+* Albedo
+* Sebas Tian
+  * Yuri-nee
+  * Lupu
+  * Nabe
+  * Entoma
+  * Sol-chan
+  * Auriel
+  * Shizu
